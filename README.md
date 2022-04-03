@@ -6,3 +6,4 @@
 * [Флаг](https://whitebluewhite.info/)
 * [Гимн](https://www.youtube.com/watch?v=qu0rYbwNp_w)
 * [Герб](gerb.png)
+* [Конституция](constitution.md)
