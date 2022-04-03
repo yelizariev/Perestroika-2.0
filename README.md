@@ -9,3 +9,4 @@
 * [Конституция](constitution.md)
 * [Королевские праздники](holidays.md)
 * [Безопасники](boris-grebenshikov.md)
+* [Армия Снеговиков](snow-army.md)
