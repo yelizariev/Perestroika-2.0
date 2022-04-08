@@ -10,7 +10,7 @@
 * [Королевские праздники](holidays.md)
 * [Безопасники](boris-grebenshikov.md)
 
-# Конфедерация "Русский Мир"
+# Конфедерация "Вольный союз"
 
 ![image](https://user-images.githubusercontent.com/186131/161508953-dcdef6a1-523e-4b25-8b03-946fa85ad47b.png)
 
