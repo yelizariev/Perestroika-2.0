@@ -22,6 +22,6 @@
 * [ХУЯЧИТЬ](https://youtu.be/KdoHIbzLJQI) — забивать гвоздь замороженной какашкой
 * [ПИЗДИТЬ](https://www.youtube.com/watch?v=ipAnwilMncI) — 1. толкать в жерло вулкана 2. украсть чужое и выкинуть в жерло вулкана
 * [ПИЗДЕТЬ](https://www.youtube.com/watch?v=-T-Ctw5pF-o) — рассказывать сказки про вулкан
-* [ПИЗДАБОЛ](https://t.me/lapipetv/61) — человек, который много ПИЗДИТ
+* [ПИЗДАБОЛ](https://t.me/lapipetv/61) — человек, который много ПИЗДИ́Т
 * [ХУЙЛО](https://ru.wikipedia.org/wiki/%D0%9F%D1%83%D1%82%D0%B8%D0%BD,_%D0%92%D0%BB%D0%B0%D0%B4%D0%B8%D0%BC%D0%B8%D1%80_%D0%92%D0%BB%D0%B0%D0%B4%D0%B8%D0%BC%D0%B8%D1%80%D0%BE%D0%B2%D0%B8%D1%87) — человек, состоящий из одних какашек
 * [ХУЕПЛЁТ](https://www.youtube.com/watch?v=iPvB_TcItgQ) — человек, который любит плести косички из сушенных какашек
