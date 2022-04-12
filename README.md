@@ -9,6 +9,7 @@
 * [Конституция](constitution.md)
 * [Королевские праздники](holidays.md)
 * [Безопасники](boris-grebenshikov.md)
+* [Цензура](roskomnadzor.md)
 
 # Конфедерация "Вольный союз"
 
