@@ -10,6 +10,7 @@
 * [Королевские праздники](holidays.md)
 * [Безопасники](boris-grebenshikov.md)
 * [Цензура](roskomnadzor.md)
+* [Образование](skills.md)
 
 # Конфедерация "Вольный союз"
 
